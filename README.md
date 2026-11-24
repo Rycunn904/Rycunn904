@@ -1,4 +1,4 @@
 - Hi, I’m @Rycunn904
 - I’m interested in Coding And Game Dvelopment
 - I’m currently learning Computer Science
-- How to reach me itshim.ex@gmail.com
+- You can reach me at itshim.ex@gmail.com
